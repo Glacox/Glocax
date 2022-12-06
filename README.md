@@ -2,7 +2,7 @@
 - 👀 I’m interested in getting your heart
 - 🌱 I’m currently learning things ( sometimes )
 - 💞️ I’m looking to collaborate on fqsdiogujqs the game
-- 📫 How to reach me : be next to me 
+- 📫 How to reach me : have a long arm
 
 <!---
 Glocax/Glocax is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
